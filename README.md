@@ -1,1 +1,1 @@
-# banadzaa.github.io
+# banadza.github.io
